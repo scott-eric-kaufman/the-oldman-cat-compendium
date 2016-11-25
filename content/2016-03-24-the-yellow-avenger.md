@@ -1,0 +1,42 @@
+# THE YELLOW AVENGER (March 24th, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/posts/548546581985370
+
+THE YELLOW AVENGER: WHAT HAPPENED YOU WERE GONE
+
+SEK: I had surgery, I didn't want to --
+
+THE YELLOW AVENGER: SO I DID WHAT I HAD TO DO
+
+SEK: I don't want to know, do I?
+
+THE YELLOW AVENGER: IT IS MY SACRED DUTY
+
+SEK: What is?
+
+THE YELLOW AVENGER: TO PEE ON ALL THE THINGS
+
+SEK: All of them?
+
+THE YELLOW AVENGER: YOU WERE GONE
+
+SEK: For 10 hours, if even.
+
+THE YELLOW AVENGER: DESPERATE TIMES CALL FOR URINE EVERYWHERE
+
+SEK: So you had no choice, you had to pee on that?
+
+THE YELLOW AVENGER: I HAD NO CHOICE I HAD TO PEE ON THAT
+
+SEK: And that?
+
+THE YELLOW AVENGER: AND THAT
+
+SEK: That as well?
+
+THE YELLOW AVENGER: THAT AS WELL
+
+SEK: So I should take "all the things" literally?
+
+THE YELLOW AVENGER: YOU SHOULD TAKE ALL THE THINGS LITERALLY
+

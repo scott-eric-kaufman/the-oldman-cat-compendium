@@ -1,0 +1,64 @@
+# I AM BAD STEVE (March 10th, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/posts/542006589306036
+
+OLDMAN CAT: I AM BAD STEVE
+
+SEK: You're who what now?
+
+OLDMAN CAT: I AM BAD STEVE
+
+SEK: And who is BAD STEVE
+
+OLDMAN CAT: WHOEVER THE FUCK HE WANTS TO BE
+
+SEK: And what does BAD STEVE do?
+
+OLDMAN CAT: WHATEVER THE FUCK HE WANTS TO
+
+SEK: And what the fuck does BAD STEVE want to do?
+
+OLDMAN CAT: BRING AN END TO THE GARY
+
+SEK: What is it with you people and inside jokes?
+
+OLDMAN CAT: THE GARY MUST BE STOPPED
+
+SEK: What in God's name are you talking about?
+
+OLDMAN CAT: THE GARY-NESS IN THE WORLD
+
+SEK: What does that mean?
+
+OLDMAN CAT: IT MEANS THE STOPPING OF IT
+
+SEK: You mean your brother?
+
+OLDMAN CAT: THE GARY
+
+SEK: The Virgil?
+
+OLDMAN CAT: THE GARY
+
+SEK: Has done what?
+
+OLDMAN CAT: THAT BOWL WAS FULL OF FOOD
+
+SEK: As happens when I fill it.
+
+OLDMAN CAT: THEN IT WASN'T
+
+SEK: Because it was eaten.
+
+OLDMAN CAT: BY THE GARY
+
+SEK: His name is still Virgil.
+
+OLDMAN CAT: BAD STEVE WILL END THE GARY
+
+SEK: And let me guess -- Trump/Satan 2016?
+
+BAD STEVE: SATAN/TRUMP 2016!
+
+> ALTHOUGH THIS PARTICULAR BIT WAS INSPIRED BY SOME SPECTACULARLY TERRIBLE CLOSED CAPTIONING OF LAST WEEK'S AMERICAN IDOL WHICH KEPT TALKING ABOUT BAD STEVE
+

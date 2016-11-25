@@ -1,0 +1,34 @@
+# I AM VERY SICK (July 7th, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/posts/589992031174158
+
+OLDMAN MUND: I AM VERY SICK I HAVE PAINS
+
+SEK: No you're not, you're fine.
+
+OLDMAN MUND: I AM VERY SICK LOOK I HAVE A LIMP
+
+SEK: No you don't.
+
+OLDMAN MUND: YES I DO SEE I'M LIMPING
+
+SEK: No, you're lying down. Do you know what "limping" means?
+
+OLDMAN MUND: IT MEANS YOU GET THE GOOD WET FOOD
+
+SEK: So you want --
+
+OLDMAN MUND: I AM DYING I AM THE ALMOST DEAD ONE
+
+SEK: You want the --
+
+OLDMAN MUND: FOOD FOR THE DEATH-BEDDED YES GIVE IT TO ME
+
+SEK: You think if --
+
+OLDMAN MUND: YES FRESH TUNA FOR THE NEARLY DEPARTED PUT IN THE BOWL
+
+SEK: You're an asshole.
+
+OLDMAN MUND: A DYING ONE PLEASE MAKE MY PASSING COMFORTABLE THANK YOU
+

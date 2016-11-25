@@ -1,0 +1,76 @@
+# I PEEK IN DUCK (August 27th, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/posts/612084508964910
+
+OLDMAN VIRGIL: WHAT IS THAT
+
+SEK: Peking duck.
+
+OLDMAN VIRGIL: DON'T MIND IF I DO
+
+SEK: Off the table!
+
+OLDMAN VIRGIL: I PEEK IN DUCK
+
+SEK: Not what I meant.
+
+OLDMAN VIRGIL: IS WHAT YOU SAID
+
+SEK: No, it's --
+
+OLDMAN VIRGIL: IS WHAT YOU SAID LET ME PEEK IN DUCK
+
+OLDMAN MUND: ALSO ME I WANT TO PEEK IN DUCK
+
+SEK: That's not what I said -- you're on diets, no duck for you.
+
+OLDMAN VIRGIL: PEEK IN DUCK PEEK IN DUCK PEEK IN DUCK
+
+OLDMAN MUND: PEEK IN DUCK PEEK IN DUCK PEEK IN DUCK
+
+SEK: OFF OFF OFF OUT OUT OUT!
+
+[Ten minutes later, after the duck has put away]
+
+OLDMAN VIRGIL: LOOK AT THIS MOMMA
+
+SEK: Look at what?
+
+OLDMAN VIRGIL: THIS THING I PUT ON MY HEAD
+
+SEK: Your face?
+
+OLDMAN VIRGIL: MY PEEK IN DUCK FACE
+
+SEK: Your peek in duck face?
+
+OLDMAN VIRGIL: FACE I MAKE WHEN YOU DON'T SHARE PEEK IN DUCK
+
+SEK: I see --
+
+OLDMAN MUND: MOTHERFUCKER NOT HERE EITHER
+
+SEK: What's not where?
+
+OLDMAN MUND: MOTHERFUCKING DUCK NOT HERE
+
+SEK: No, it's not.
+
+OLDMAN MUND: WHERE MOTHERFUCKING DUCK BE
+
+SEK: It's not behind the couch, I wouldn't --
+
+OLDMAN MUND: MOTHERFUCKER WHERE PEEK IN DUCK
+
+SEK: Search all you want, you're not going to --
+
+OLDMAN MUND: I ON MOTHERFUCKING PEEK IN DUCK HUNT
+
+SEK: How very NES of you.
+
+OLDMAN MUND: THAT MEAN NOTHING PEEK IN DUCK I WILL FIND YOU
+
+SEK: OK Daniel Day-OLDMAN, you need to calm down and --
+
+OLDMAN MUND: I WILL FIND YOU
+

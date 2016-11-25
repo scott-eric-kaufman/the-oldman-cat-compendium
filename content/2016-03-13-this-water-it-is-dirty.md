@@ -1,0 +1,42 @@
+# THIS WATER IT IS DIRTY (March 13th, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/posts/543382399168455
+
+OLDMAN CAT: THIS WATER IT IS DIRTY
+
+SEK: Your water is always dirty.
+
+OLDMAN CAT: THIS WATER IT IS PARTICULARLY DIRTY I AM TIPPING IT OVER
+
+SEK: Don't tip it over.
+
+OLDMAN CAT: I AM TIPPING IT OVER NOW
+
+SEK: [throws plastic fork at OLDMAN CAT]
+
+OLDMAN CAT: HEY NOW
+
+SEK: "Hey now" what?
+
+OLDMAN CAT: THIS WATER IT IS UNCLEAN
+
+SEK: [throws plastic spoon at OLDMAN CAT]
+
+OLDMAN CAT: IT IS NOT KOSHER
+
+SEK: [throws plastic spork at OLDMAN CAT]
+
+OLDMAN CAT: IT IS NOT HALAL
+
+SEK: [throws plastic knife at OLDMAN CAT]
+
+OLDMAN CAT: QUIT THROWING TAKEOUT UTENSILS AT ME
+
+SEK: Stop clink-Clink-CLINK-pawing water all over my hardwood floors.
+
+OLDMAN CAT: OK FINE I ACCEPT YOUR TRUCE OUR PEOPLE ARE AT PEACE
+
+SEK: Excellent.
+
+OLDMAN CAT: NOW DO SOMETHING ABOUT THIS WATER IT IS DIRTY I AM TIPPING IT OVER...
+

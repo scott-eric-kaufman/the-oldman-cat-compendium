@@ -1,0 +1,14 @@
+# JUDGEMENT (April 28th, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/photos/a.522599801246715.1073741828.519921494847879/563225770517451/
+
+![OLDMAN CAT](images/13062410_563225770517451_6392645073629173611_n.jpg)\ 
+
+OLDMAN CAT: JUDGMENT
+
+SEK: What?
+
+OLDMAN CAT: JUDGMENT
+
+SEK: What are you -- I see...
+

@@ -1,0 +1,20 @@
+# I GET AN EMAIL (March 21st, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/posts/546816545491707
+
+I GET A EMAIL
+
+"Are you for real? A lot of this seems made up."
+
+I AM FOR VERY REAL
+
+AM ACTUAL CAT AND OLDMAN
+
+I SIT DOWN AT COMPUTER AND WRITE ABOUT SEK
+
+SEK IS LIAR AND IDIOT
+
+I AM NOT I AM FOR REAL OLDMAN CAT
+
+DONE TYPING NOW IMPORTANT SLEEPING TO DO
+

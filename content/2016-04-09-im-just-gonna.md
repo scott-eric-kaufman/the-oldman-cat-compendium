@@ -1,0 +1,24 @@
+# I'M JUST GONNA (April 9th, 2016)
+
+ * Originally posted at https://www.facebook.com/oldmancat/posts/556248641215164
+
+THE "Time to stick my head in the couch" SAGA CONTINUES...
+
+OLDMAN VIRGIL: I'M JUST GONNA --
+
+SEK: NO JUST GONNA --
+
+OLDMAN VIRGIL: BUT I'M JUST GONNA --
+
+SEK: YOU'RE NOT JUST GONNA --
+
+OLDMAN VIRGIL: OK JUST LET ME --
+
+SEK: NO OK JUST LET ME --
+
+OLDMAN VIRGIL: I NEED TO SEE A MAN ABOUT A --
+
+SEK: NO YOU DON'T YOU NEED TO SEE A MAN ABOUT A --
+
+OLDMAN VIRGIL: BUT I'M JUST GONNA...
+
