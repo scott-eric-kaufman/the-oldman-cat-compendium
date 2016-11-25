@@ -1,6 +1,6 @@
-# THE WHOLE SEK
+# THE OLDMAN CAT COMPENDIUM
 
-E-book consisting of the more-or-less complete works of Scott Eric Kaufman.
+E-book consisting of the Oldman Cat series by Scott Eric Kaufman.
 
 ## Dependencies
 
