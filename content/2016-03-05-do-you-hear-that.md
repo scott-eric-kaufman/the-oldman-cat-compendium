@@ -2,7 +2,7 @@
 
  * Originally posted at https://www.facebook.com/oldmancat/posts/540472452792783
 
-![Portrait of a Chickenshit as an OLDMAN](images/12832357_540548176118544_5116814239581531255_n.jpg)\ 
+![Portrait of a Chickenshit as an OLDMAN](../images/12832357_540548176118544_5116814239581531255_n.jpg)
 
 OLDMAN VIRGIL: DO YOU HEAR THAT
 
