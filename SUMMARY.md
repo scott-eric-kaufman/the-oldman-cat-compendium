@@ -1,7 +1,5 @@
 # Summary
 
-* [Introduction](content/000-introduction.md)
-
 * [THIS PAGE IS TERRIBLE (January 2nd, 2016)](content/2016-01-02-01-this-page-is-terrible.md)
 * [SOME FOOD FELL IN (January 2nd, 2016)](content/2016-01-02-02-licking-my-ear.md)
 * [CUDDLE WITH YOUR FACE (January 3rd, 2016)](content/2016-01-03-01-cuddle-with-your-face.md)
